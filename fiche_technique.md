@@ -1,4 +1,4 @@
-## requirements
+## Requirements
 
 - le titre
 - les créateurs et créatrices
