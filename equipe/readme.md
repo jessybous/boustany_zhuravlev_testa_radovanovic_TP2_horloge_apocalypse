@@ -1,1 +1,1 @@
-dans ce dossier ce trouve le travail d'équipe
+Ici se trouve le travail fait en équipe.
