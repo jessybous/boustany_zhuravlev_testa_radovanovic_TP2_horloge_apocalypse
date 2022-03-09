@@ -1,1 +1,1 @@
-Dans ce dossier ce trouve la partie individelle
+Ici se trouve la partie individuelle du travail.
