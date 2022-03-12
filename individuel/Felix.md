@@ -1,4 +1,4 @@
-Préférences des projets
+# Préférences des projets
 
 1- Chère Sasha - J’adore l’histoire du projet. J’aime aussi à quel point les créateurs ont mis de l’effort pour les voix, les graphiques et la simulation d’un téléphone portable.
 
