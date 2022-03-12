@@ -12,7 +12,7 @@
 
 6- 3 minutes - Je trouve qu’ils parlent d’un problème pertinent, par contre je n’ai pas plus d'informations sur le projet. Nous n’avons que l’intention, et le résumé du projet s’agit d’un paragraphe de Lorem Ipsum.
 
-## Ce que je crois ressentir lors des projets
+## Ce que je crois ressentir lors de mes expérimentations
 
 Chère Sasha - Je crois que je vais me sentir émue lors de mon expérience. Un sujet aussi lourd que celui-ci va sûrement me faire ressentir des émotions fortes. 
 
