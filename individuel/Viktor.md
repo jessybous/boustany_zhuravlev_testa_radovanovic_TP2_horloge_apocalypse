@@ -1,26 +1,26 @@
 # Préférences
 
-L’horloge de l'apocalypse: 
+- L’horloge de l'apocalypse: 
 
 C’est le projet que j’ai le plus aimé parce que les animations étaient très bien exécutées et le projet était le plus avancé parmi les autres qui étaient autour de lui. J’ai aussi aimé la trame sonore qui venait avec la démonstration, elle allait bien avec les scènes différentes quand les présentateurs défilaient les diapositives.
 
-Chère Sasha:
+- Chère Sasha:
 
 J’ai aimé ce projet parce que je trouve qu’il est important de parler des problèmes que les membres de la communauté LGBTQ+ doivent affronter. Il faut sensibiliser le public qui ignore ce qui se passe dans leur vie. 
 
-3 minutes:
+- 3 minutes:
 
-J’ai trouvé ce projet intéressant parce que le message de ce dernier est quelque chose qui est toujours dans le monde. J’aime aussi le fait qu’ils utilisent de la réalité virtuelle, comme ça, on se sentira plus investi et immergé dans le monde.
+- J’ai trouvé ce projet intéressant parce que le message de ce dernier est quelque chose qui est toujours dans le monde. J’aime aussi le fait qu’ils utilisent de la réalité virtuelle, comme ça, on se sentira plus investi et immergé dans le monde.
 
-Jeu temporel:
+- Jeu temporel:
 
 J’aime comment ce projet aura des fins différentes selon nos choix. Je trouve cet aspect intéressant et ça va faire en sorte que je devrais vraiment penser à mes choix avant de répondre.
 
-Le musée de la Vie:
+- Le musée de la Vie:
 
 Je trouve que le message est quelque chose de pertinent, surtout dans le monde d’aujourd’hui. J’aime aussi les croquis qui ont été montrés dans le journal, le style est très beau.
 
-Distorsion collective: 
+- Distorsion collective: 
 
 Je trouve que ce projet n’ait pas un message aussi fort que les autres. Comparent les cours en ligne à des sérieux problèmes qui sont présents dans le monde, ce n’est pas difficile à voir lequel est le plus important.
 
