@@ -12,7 +12,7 @@ Préférences des projets
 
 6- 3 minutes - Je trouve qu’ils parlent d’un problème pertinent, cependant je n’ai pas plus d'informations sur le projet. Nous n’avons que l’intention, et le résumé du projet s’agit d’un paragraphe de Lorem Ipsum.
 
-##Ce que je crois ressentir lors de mes expérimentations
+## Ce que je crois ressentir lors de mes expérimentations
 
 Chère Sasha - Je crois que je vais me sentir émue lors de mon expérience. Un sujet aussi lourd que celui-ci va sûrement me faire ressentir des émotions fortes.
 
@@ -26,6 +26,6 @@ Distorsion collective - Je ne pense pas ressentir quoique ce soit pendant ce pro
 
 3 minutes - D’après ce que j’ai vu sur le site, j’ai peur que l’exécution du projet aille engendrer une mauvaise expérience avec l'œuvre. Le manque d’information ne me laisse pas assez pour formuler une hypothèse sur mes émotions potentielles pendant mon expérience.
 
-##Le rôle que je crois jouer dans un tel projet
+## Le rôle que je crois jouer dans un tel projet
 
 Si le projet en nécessite, je crois que je serais la personne à faire le visuel, comme les dessins, le vectoriel ou bien l’animation du projet. Comme je me considère comme une personne créative, je voudrais que cela soit apparent dans mes projets.
