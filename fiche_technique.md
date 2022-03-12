@@ -1,4 +1,4 @@
-## Requirements
+## Instructions
 
 - le titre
 - les créateurs et créatrices
