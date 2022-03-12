@@ -1,3 +1,4 @@
+# les projets ordonnés selon votre préférence actuelle 
 ## 1. Chère Sasha
 
 J'ai decider de mettre Chere Sasha en premier, car l’histoire m'a beaucoup touché. Son histoire représente quelque chose que plusieurs personnes vivent, ce qui touche à la corde sensible des spectateurs. L'homophobie est un sujet qui me tient à cœur, ainsi qu’à plein de gens, et le trauma familial qui l'entoure est souvent négligé du public.  L’idée est très originale et très bien pensée. La manière dont le projet est fait est un très bon moyen de représentation du problème qu'apporte l’homophobie chez quelqu’un. Les animations sont très bien faites, les voix et les personnages sont bien représentés et tout a été bien pensé. dans un projet comme celui là, je crois qe je 
