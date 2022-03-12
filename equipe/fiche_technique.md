@@ -15,6 +15,7 @@ Les créateurs de ce projet ont voulu immerger la personne qui sera en contrôle
 ## L'installation en cours dans les studios
 
 Dans le studio s’y trouve un piédestal qui contient l’horloge, un téléphone qui se trouve à côté du piédestal. Devant l'horloge, se trouve un Spotlight entouré de trois projecteurs. Des hauts-parleurs se trouvent dans les quatres coins de la pièce. Une caméra et un kinect , ainsi que des lumières se trouvent sur le plafond. Tout cela est relié à un ordinateur par des cables USB, XLR3, ethernet et HDMI
+![installation](/media/installation_echelle_milieu.png)
 
 ## Le schéma de l'installation prévue (insérer le schéma de plantation, avec la source)
 
