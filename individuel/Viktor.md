@@ -10,19 +10,19 @@ J’ai aimé ce projet parce que je trouve qu’il est important de parler des p
 
 ### 3 minutes
 
-J’ai trouvé ce projet intéressant parce que le message de ce dernier est quelque chose qui est toujours dans le monde. J’aime aussi le fait qu’ils utilisent de la réalité virtuelle, comme ça, on se sentira plus investi et immergé dans le monde..
+J’ai trouvé ce projet intéressant parce que le message de ce dernier est quelque chose qui est toujours dans le monde. J’aime aussi le fait qu’ils utilisent de la réalité virtuelle, comme ça, on se sentira plus investi et immergé dans le monde.
 
 ### Jeu temporel 
 
 J’aime comment ce projet aura des fins différentes selon nos choix. Je trouve cet aspect intéressant et ça va faire en sorte que je devrais vraiment penser à mes choix avant de répondre.
 
-### Le musée de la vie
+### Le musée de la Vie
 
 Je trouve que le message est quelque chose de pertinent, surtout dans le monde d’aujourd’hui. J’aime aussi les croquis qui ont été montrés dans le journal, le style est très beau.
 
-### Distortion collective
+### Distorsion collective
 
-Je trouve que ce projet n’aie pas un message aussi fort que les autres. Comparent les cours en ligne à des sérieux problèmes qui sont présents dans le monde, ce n’est pas difficile à voir lequel est le plus important. 
+Je trouve que ce projet n’ait pas un message aussi fort que les autres. Comparent les cours en ligne à des sérieux problèmes qui sont présents dans le monde, ce n’est pas difficile à voir lequel est le plus important.
 
 # Mon ressentiment
 
